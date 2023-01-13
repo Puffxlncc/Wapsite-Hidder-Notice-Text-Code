@@ -116,5 +116,5 @@ Telegram : <a href="https://t.me/puffx_android_hack">Click</a>
 
 <hr>
 <b><center>          Powered By<center></b>
-<b><center>Â©Puffx, lnc.<center></b>
+<b><center>©Puffx, lnc.<center></b>
 
